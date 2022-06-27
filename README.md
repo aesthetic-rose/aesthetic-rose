@@ -8,13 +8,13 @@
 
 • 📫 How to reach me:
 
-email: aesthetic.chaa@gmail.com OR vzheng1@umbc.edu
+⇨ email: aesthetic.chaa@gmail.com OR vzheng1@umbc.edu
       
-phone: 443-850-2572 (preferable to send a text first about who you are and if you would like to call - there are many scam calls nowadays...)
+⇨ phone: 443-850-2572 (preferable to send a text first about who you are and if you would like to call - there are many scam calls nowadays...)
       
-discord: rose ღ#8635
+⇨ discord: rose ღ#8635
       
-instagram: https://www.instagram.com/iced_coffe.vibes/ 
+⇨ instagram: https://www.instagram.com/iced_coffe.vibes/ 
 
 <!---
 aesthetic-rose/aesthetic-rose is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
