@@ -7,10 +7,14 @@
 • 💞️ I’m looking to collaborate on any machine learning project that anyone would want to do with me!
 
 • 📫 How to reach me:
-      email: aesthetic.chaa@gmail.com OR vzheng1@umbc.edu
-      phone: 443-850-2572 (preferable to send a text first about who you are and if you would like to call - there are many scam calls nowadays...)
-      discord: rose ღ#8635
-      instagram: https://www.instagram.com/iced_coffe.vibes/ 
+
+email: aesthetic.chaa@gmail.com OR vzheng1@umbc.edu
+      
+phone: 443-850-2572 (preferable to send a text first about who you are and if you would like to call - there are many scam calls nowadays...)
+      
+discord: rose ღ#8635
+      
+instagram: https://www.instagram.com/iced_coffe.vibes/ 
 
 <!---
 aesthetic-rose/aesthetic-rose is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
